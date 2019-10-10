@@ -1,2 +1,2 @@
 # blob-shark
-Study is a pain. 
+In much wisdom is much grief: and he that increaseth knowledge increaseth sorrow.
